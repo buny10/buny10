@@ -2,7 +2,8 @@
 - 👀 I’m interested in develoing. 
 - 🌱 I’m currently learning app developing 
 - 💞️ I’m looking to collaborate on major companies of the world.
-- 📫 How to reach me to react>
+- 📫 Merging The Mains !!>
+-  Committing>>Changes!!
 
 <!---
 buny10/buny10 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
