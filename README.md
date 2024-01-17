@@ -2,7 +2,7 @@
 - 👀 I’m interested in develoing. 
 - 🌱 I’m currently learning app developing 
 - 💞️ I’m looking to collaborate on major companies of the world.
-- 📫 Merging The Mains !!>
+- 📫 Merging To Mains !!>
 -  Committing>>Changes!!
 
 <!---
