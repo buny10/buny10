@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @buny10
-- 👀 I’m interested in develoing. 
+- 👀 I’m interested in developing. 
 - 🌱 I’m currently learning app developing 
 - 💞️ I’m looking to collaborate on major companies of the world.
 - 📫 Merging To Mains !!>
